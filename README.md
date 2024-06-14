@@ -18,14 +18,25 @@ Crashlytics, New Relic, Test Flight
 ● Agile Methodologies and Scrum, Product Development, Team Management,
 Cross-Team Coordination, Mentorship, Highly Organised, Interpersonal Skills, Problem Solving & Decision Making.
 My adept problem-solving skills and a robust track record in team management underscore my ability to deliver top-tier solutions with meticulous attention to detail.
+
 I also tried my luck as a founder at Vegideals and ReFinderApp, learned how not to run a company.
 I would love the opportunity to further discuss this position. Thanks for your time and consideration. Have a great day.
 
+
 Thanks & Regards,
+
 Harsh Duggal
 Mobile: +91-9990953754
 harsh.duggal24@gmail.com
+
 LinkedIn: https://www.linkedin.com/in/harshduggal
-Social Contributions: https://stackoverflow.com/users/1398365/hddeveloper My Blog: http://developmobilesoftware.blogspot.in/
+
+Social Contributions: https://stackoverflow.com/users/1398365/hddeveloper 
+
+My Blog: http://developmobilesoftware.blogspot.in/
+
 GitHub: https://github.com/HarshDuggal
-Follow me: https://twitter.com/HARSHDUGGAL Always ready for a quick game of chess.
+
+Follow me: https://twitter.com/HARSHDUGGAL 
+
+Always ready for a quick game of chess. https://www.chess.com/member/hddev
