@@ -1,4 +1,4 @@
-# HarshDuggalResume
+# HarshDuggal
 
 I hope this message finds you well.
 With extensive experience spanning over a decade in mobile app development, I bring a wealth of skills and expertise in crafting applications from inception to fruition to the table.
